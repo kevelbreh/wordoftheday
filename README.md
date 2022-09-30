@@ -2,6 +2,15 @@
 
 Learning new words, one day at a time.
 
+### [repayment](https://g.co/kgs/vLdQ1W)
+
+(_noun_) **the action of paying back a loan**
+
+- an amount of money paid back
+
+    _"minimum monthly repayments"_
+
+
 ### [audit](https://g.co/kgs/nV262N)
 
 (_noun_) **an official inspection of an organisation's accounts, typically by an independent body.**

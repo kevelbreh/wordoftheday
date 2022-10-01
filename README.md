@@ -2,6 +2,21 @@
 
 Learning new words, one day at a time.
 
+### [animate](https://g.co/kgs/nXYhqj)
+
+(_verb_) **bring to life.**
+
+_"Prometheus stole fire from heaven to animate his clay men"_
+
+(_verb_) **give (a give or character) the appearence of movement using animation techniques.**
+
+_"much-loved characters have been animated in this Franco-Canadian co-production."_
+
+(_adjective_) **alive or having life**
+
+_"gods in a wide variety of forms, both animate and inanimate"_
+
+
 ### [repayment](https://g.co/kgs/vLdQ1W)
 
 (_noun_) **the action of paying back a loan**

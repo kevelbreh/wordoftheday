@@ -2,6 +2,17 @@
 
 Learning new words, one day at a time.
 
+### [nickname](https://g.co/kgs/hTyqcr)
+
+(_noun_) **a familiar or humorous name given to a person or a thing instead of or as well as the real name.**
+
+_"Mallender's fair complexion gave rise to his nickanem 'Ghost'"_
+
+(_verb_) **given a nickname to.**
+
+_"an area nicknamed Sniper's Alley"_
+
+
 ### [animate](https://g.co/kgs/nXYhqj)
 
 (_verb_) **bring to life.**

@@ -2,6 +2,13 @@
 
 Learning new words, one day at a time.
 
+### [durability](https://g.co/kgs/R9U199)
+
+(_noun_) **the ability to withstand wear, pressure or damage.**
+
+_"the reliability and durability of plastics"_
+
+
 ### [nickname](https://g.co/kgs/hTyqcr)
 
 (_noun_) **a familiar or humorous name given to a person or a thing instead of or as well as the real name.**

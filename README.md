@@ -2,6 +2,22 @@
 
 Learning new words, one day at a time.
 
+
+### [elastic](https://g.co/kgs/Kkcs3n)
+
+(_adjective_) **(of an object or material) able to resume its normal shape spontaneously after being stretched or compressed.**
+
+_"a tourniquet of rubber tubing or other elastic material is placed around the upper arm"_
+
+(_adjective) **able to compress much variety and change; flexible and adaptivie**
+
+_"the definition of nationality is elastic in this cosmopolitan country"_
+
+(_noun_) **cord, tape, or fabric, woven with strips of rubber, which returns too its original length or shape after being stretched.**
+
+_"a polythene bag tied with elastic"_
+
+
 ### [durability](https://g.co/kgs/R9U199)
 
 (_noun_) **the ability to withstand wear, pressure or damage.**

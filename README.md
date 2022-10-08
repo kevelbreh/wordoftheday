@@ -2,6 +2,16 @@
 
 Learning new words, one day at a time.
 
+### [transpire](https://g.co/kgs/5ooeUR)
+
+(_verb_) **(of a secret or something unknown) come to be known; be revealed.**
+
+_"It transpired that millions of dollars of debt had been hidden in a complex web of transactions"_
+
+(_verb_: _**botany**_) **(of a plant or leaf) given off water vapour through the stomata**
+
+_"a cactus does not transpire as freely as most plants"_
+
 
 ### [elastic](https://g.co/kgs/Kkcs3n)
 

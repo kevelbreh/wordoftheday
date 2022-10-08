@@ -2,6 +2,21 @@
 
 Learning new words, one day at a time.
 
+### [waterproof](https://g.co/kgs/wRNicX)
+
+(_adjective_) **impervious to water**
+
+_"a waterproof hat"_
+
+(_noun_) **a garment, especially a coat, that keeps out water**
+
+_"she put on boots and a waterproof"_
+
+(_verb_) **make impervious to water**
+
+_"a plastic case waterproofs this disposable camera"_
+
+
 ### [transpire](https://g.co/kgs/5ooeUR)
 
 (_verb_) **(of a secret or something unknown) come to be known; be revealed.**

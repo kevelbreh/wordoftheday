@@ -2,6 +2,16 @@
 
 Learning new words, one day at a time.
 
+
+### [cowardly](https://g.co/kgs/Meyiug)
+
+(_adjective_) **lacking courage.**
+
+_"he was a week, cowardly man"_
+
+(_adverb_) **in a way which shows lack of courage**
+
+
 ### [waterproof](https://g.co/kgs/wRNicX)
 
 (_adjective_) **impervious to water**

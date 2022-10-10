@@ -3,6 +3,13 @@
 Learning new words, one day at a time.
 
 
+### [teddy](https://g.co/kgs/5DFctt)
+
+(_noun_) **a soft toy bear**
+
+(_noun_) **a woman's all-in-one undergarment.**
+
+
 ### [murmur](https://g.co/kgs/i5wuZF)
 
 (_noun_) **a low continous background noise.**

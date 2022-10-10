@@ -3,6 +3,25 @@
 Learning new words, one day at a time.
 
 
+### [murmur](https://g.co/kgs/i5wuZF)
+
+(_noun_) **a low continous background noise.**
+
+_"the distant murmur of traffic"_
+
+(_noun_) **a softly spoken or almost inaudible utterance.**
+
+_"a quiet murmur of thanks"_
+
+(_verb_) **say something in a low or distinct voice.**
+
+_"Nina murmured an excuse and hurried away"_
+
+(_verb_) **make a low continuous sound**
+
+_"the wind was murmuring through the trees"_
+
+
 ### [cowardly](https://g.co/kgs/Meyiug)
 
 (_adjective_) **lacking courage.**

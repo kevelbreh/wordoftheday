@@ -3,6 +3,19 @@
 Learning new words, one day at a time.
 
 
+### [inland](https://g.co/kgs/4H2Xj9)
+
+(_adjective_) **situated in the interior of a country rather than on the coast.**
+
+_"the inland port of Gloucester"_
+
+(_adverb_) **in or towards the interior of a country**
+
+_"the path turned inland and met the road"_
+
+(_noun_) **the parts of a country remote from the sea or frontiers; the interior.**
+
+
 ### [teddy](https://g.co/kgs/5DFctt)
 
 (_noun_) **a soft toy bear**

@@ -3,6 +3,17 @@
 Learning new words, one day at a time.
 
 
+### [provocation](https://g.co/kgs/cnLhuw)
+
+(_noun_) **the action or speech that makes someone angry, especially deliberately.**
+
+_"you should remain calm and not respond to provocation"_
+
+(_noun_) **the action of arousing sexual desire or interest, especially deliberately**
+
+_"walking with deliberate provocation, she struck a pose, then giggled"_
+
+
 ### [inland](https://g.co/kgs/4H2Xj9)
 
 (_adjective_) **situated in the interior of a country rather than on the coast.**

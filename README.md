@@ -3,6 +3,17 @@
 Learning new words, one day at a time.
 
 
+### [big time](https://g.co/kgs/sM3y96)
+
+(_noun_) **the highest or most successful level in a career, especially in entertainment.**
+
+_"a bit-part actor who finally made the big time in Hollywood"_
+
+(_adverb_) **on a large scale; to a great extent.**
+
+_"this time they've messed up big time"_
+
+
 ### [provocation](https://g.co/kgs/cnLhuw)
 
 (_noun_) **the action or speech that makes someone angry, especially deliberately.**

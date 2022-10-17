@@ -3,6 +3,15 @@
 Learning new words, one day at a time.
 
 
+### [tonic](https://g.co/kgs/tovYtv)
+
+(_noun_) **a medicinal substance taken to give a feeling of vigour or well-being**
+
+(_adjective_) **giving a feeling of vigour or well-being; invigorating.**
+
+_"a tonic body shampoo"_
+
+
 ### [tragically](https://g.co/kgs/Bbk7Ug)
 
 (_adverb_) **in a way that involves or causes extreme distress or sorrow.**

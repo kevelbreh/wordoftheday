@@ -3,6 +3,17 @@
 Learning new words, one day at a time.
 
 
+### [tragically](https://g.co/kgs/Bbk7Ug)
+
+(_adverb_) **in a way that involves or causes extreme distress or sorrow.**
+
+_"Jim was tragically killed in a plane crash"_
+
+(_adverb_) **very badly.**
+
+_"a tragically flawed personality"_
+
+
 ### [assertive](https://g.co/kgs/pdMAAd)
 
 (_adjective_) **having or showing a confident and forceful personality**

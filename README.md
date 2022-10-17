@@ -3,6 +3,13 @@
 Learning new words, one day at a time.
 
 
+### [assertive](https://g.co/kgs/pdMAAd)
+
+(_adjective_) **having or showing a confident and forceful personality**
+
+_"the job may call for assertive behaviour"_
+
+
 ### [big time](https://g.co/kgs/sM3y96)
 
 (_noun_) **the highest or most successful level in a career, especially in entertainment.**

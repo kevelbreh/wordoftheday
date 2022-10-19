@@ -3,6 +3,21 @@
 Learning new words, one day at a time.
 
 
+### [cutting edge](https://g.co/kgs/xwPAhn)
+
+(_noun_) **the edge of a tool's blade**
+
+_"tools with cutting edges should be kept sharp"_
+
+(_noun_) **the latest of most advanced stage in the development of something.**
+
+_"researchers at the cutting edge of molecular biology"_
+
+(_adjective_) **highly advanced; innovative or pioneering.**
+
+_"cutting-edge technology"_
+
+
 ### [tonic](https://g.co/kgs/tovYtv)
 
 (_noun_) **a medicinal substance taken to give a feeling of vigour or well-being**

@@ -3,6 +3,21 @@
 Learning new words, one day at a time.
 
 
+### [mash](https://g.co/kgs/rCfTiH)
+
+(_verb_) **reduce (food or other substance) to a soft mass by crushing it.**
+
+_"mash the beans to a paste"_
+
+(_verb_) **(in brewing) mix (powedered malt) with hot water to form wort.**
+
+_"the barley is dried out over peat fires and mashed with water which flows through peat ground"_
+
+(_noun_) **a soft mass made by crushing a substance into a pulp, sometimes with the addition of liquid.**
+
+_"pound the garlic to a mash"_
+
+
 ### [cutting edge](https://g.co/kgs/xwPAhn)
 
 (_noun_) **the edge of a tool's blade**

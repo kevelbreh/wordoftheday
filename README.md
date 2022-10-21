@@ -3,6 +3,17 @@
 Learning new words, one day at a time.
 
 
+### [mash](https://g.co/kgs/rSZoNS)
+
+(_adjective_) **exercising unscrupulous control of influence over a person or situation.**
+
+_"she was sly, selfish, and manipulative"_
+
+(_adjective_) **relating to manipulation of an object or part of the body**
+
+_"a manipulative skill"_
+
+
 ### [mash](https://g.co/kgs/rCfTiH)
 
 (_verb_) **reduce (food or other substance) to a soft mass by crushing it.**

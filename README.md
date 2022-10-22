@@ -3,6 +3,17 @@
 Learning new words, one day at a time.
 
 
+### [strive](https://g.co/kgs/5ivj2n)
+
+(_verb_) **make great efforts to achieve or obtain something.**
+
+_"national movements were striving for independence"_
+
+(_verb_) **struggle or fight viorously.**
+
+_"scholars must strive against bias"_
+
+
 ### [mash](https://g.co/kgs/rSZoNS)
 
 (_adjective_) **exercising unscrupulous control of influence over a person or situation.**

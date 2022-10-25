@@ -3,6 +3,17 @@
 Learning new words, one day at a time.
 
 
+### [chunk](https://g.co/kgs/tFasMV)
+
+(_noun_) **a think, solid piece of something.**
+
+_"huge chunks of masonry littered the street"_
+
+(_verb_) **divide (somthing) into chunks**
+
+_"chunk four pounds of pears"_
+
+
 ### [strive](https://g.co/kgs/5ivj2n)
 
 (_verb_) **make great efforts to achieve or obtain something.**
@@ -14,7 +25,7 @@ _"national movements were striving for independence"_
 _"scholars must strive against bias"_
 
 
-### [mash](https://g.co/kgs/rSZoNS)
+### [manipulative](https://g.co/kgs/rSZoNS)
 
 (_adjective_) **exercising unscrupulous control of influence over a person or situation.**
 
